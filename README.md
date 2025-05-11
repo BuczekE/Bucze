@@ -1,2 +1,2 @@
-# Bucze
+# Buczek
 Buczek Emanuel 
